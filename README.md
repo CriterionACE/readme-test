@@ -6,4 +6,5 @@ Contact via VDP for legal closeout and attribution.
 
 Secure Contact:(New Address Due to Filter Issue):
 secure.coms.2012@pm.me
-
+or 
+CriterionACE@proton.me
